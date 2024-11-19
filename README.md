@@ -16,7 +16,7 @@
 - Through my LinkedIn-<a href="https://linkedin.com/in/sathvik-ch-ab37a8230" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="sathvik-ch-ab37a8230" height="18" width="18" /></a>
 
 📄 **Resume**:
--  🌱Know about my experiences [https://drive.google.com/file/d/1-gzdChYi4Kt1p8BGkcRW2rRS4VLeZ5yJ/view?usp=sharing](https://drive.google.com/file/d/1-gzdChYi4Kt1p8BGkcRW2rRS4VLeZ5yJ/view?usp=sharing)
+-  🌱Know about my experiences [https://drive.google.com/file/d/1FkZUvzKa-CUbVwa9Dj1_ns2F6Jq3eif1/view?usp=sharing](https://drive.google.com/file/d/1FkZUvzKa-CUbVwa9Dj1_ns2F6Jq3eif1/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
